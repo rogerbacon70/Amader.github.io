@@ -1,1 +1,0 @@
-# Amader.github.io
